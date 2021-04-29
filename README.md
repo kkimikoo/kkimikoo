@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @kimiko
+- 👀 I’m interested in product design, the internet, and people.
+- 📫 How to reach me ...
